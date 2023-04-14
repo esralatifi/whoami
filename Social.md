@@ -1,4 +1,4 @@
-# Social
+# Social Media
 
 ### Mund te me gjeni ne :
 
