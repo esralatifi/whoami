@@ -7,6 +7,7 @@ Une jam Esra Latifi, 18 vjece nga qyteti i Kumanoves.
 - Programimi
 - Basketbolli(sporti ne pergjithesi)
 - Kitara
+- Traveling
 - Gaming 
 - Filmat/serialet
 
